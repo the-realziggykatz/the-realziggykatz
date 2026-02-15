@@ -7,7 +7,7 @@
 <sub> pieces of gold, shredding paper. all into nothing, and turning into vapor. 
   
 <p align="center">
-<sub><a href="https://open.spotify.com/artist/1kCey8cRpDpF2WsW0jPLVI" rel="nofollow">spotify</a></sub>
+<sub><a href="https://ziggykatzson.carrd.co" rel="nofollow">carrd</a></sub>
 <sub><a href="https://ziggykatzson.straw.page" rel="nofollow">strawpage</a></sub>
 <sub><a href="https://github.com/oscar-piastri" rel="nofollow">other</a></sub>
 
